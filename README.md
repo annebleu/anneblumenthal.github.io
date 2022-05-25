@@ -1,2 +1,2 @@
-# anneblue.github.io
+# Anne Blumenthal
 Anne Blumenthal's professional website
